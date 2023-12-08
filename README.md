@@ -25,9 +25,9 @@ A maioria das plantas sobrevive na ausencia do sol direto, necessitam apenas, da
 ![image](https://github.com/vhsth4i/Primeiro-Ano---Terceiro-Trimestre/assets/142015239/d962b36b-377e-41b8-8b13-5ee24d458447)
 
 #6º PASSO - ADUBAÇÃO DE CRESCIMENTO
-As plantas envasadas (vendidas em vasos) possuem uma maior necessidade de nutrientes por terem sido condicionadas dessa forma durante todo o seu ciclo de crescimento. É importante que a adubação nutricional siga as orientações contidas na embalagem dos produtos. O excesso de fertilizantes é prejudicial às plantas.
-![image](https://github.com/vhsth4i/Primeiro-Ano---Terceiro-Trimestre/assets/142015239/9c930746-ab6b-4aba-8523-0136cbf9850a)
+As plantas envasadas (vendidas em vasos) possuem uma maior necessidade de nutrientes por terem sido cond(https://github.com/vhsth4i/Primeiro-Ano---Terceiro-Trimestre/assets/142015239/9c930746-ab6b-4aba-8523-0136cbf9850a)
 
 #7º PASSO - CUIDADOS COM A PLANTA
 As plantas estão susceptíveis ao ataque de pragas. O ataque das pragas é maior na época de baixa umidade do ar (inverno). Dessa forma é importante tomar alguns cuidados para evitar que estas pragas ataquem suas plantas. No mercado estão disponíveis produtos orgânicos com grande eficiência no combate e controle destas pragas. Armadilhas amarelas para serem penduradas próximas aos vasos ou mesmo aquelas para serem colocadas diretamente nos vasos, servem para controle e identificação de pragas voadoras. Para o combate de lesmas e caracóis, pragas agressivas que comem as plantas à noite, devem ser combatidos com lesmicidas orgânicos. É importante controlar a prag,a pois sua única função, é se alimentar das nossas plantas.
-![image](https://github.com/vhsth4i/Primeiro-Ano---Terceiro-Trimestre/assets/142015239/708d8f12-da0c-4333-8c75-50a656ec7393)
+![image](https://github.com/vhsth4i/Primeiro-Ano---Terceiro-Trimestre/assets/142015239/708d8f12-da0c-4333-8c75-50a656ec7393)icionadas dessa forma durante todo o seu ciclo de crescimento. É importante que a adubação nutricional siga as orientações contidas na embalagem dos produtos. O excesso de fertilizantes é prejudicial às plantas.
+![image]
